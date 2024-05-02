@@ -1,1 +1,1 @@
-# Artificial Intelligence in The Oil and Gas Industry
+# Artificial Intelligence: The Oil and Gas Industry
